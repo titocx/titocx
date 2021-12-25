@@ -2,7 +2,7 @@
 - 👀 I’m interested in games
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me @victorioon - INSTAGRAM @victor__cox - TWITTER 
+- 📫 How to reach me @victorioon - INSTAGRAM @victor__cox - TWITTER tito#7138 - DISCORD
 
 <!---
 titocx/titocx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
